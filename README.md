@@ -234,4 +234,4 @@ Them's Fightin' Herds offers a full free version with all features and updates i
 Dive into the world of Them's Fightin' Herds today and unleash your inner fighter! Download now and enjoy the adventure!
 
 ---
-**Last updated:** 2026-10-06 11:47:04 UTC
+**Last updated:** 2026-10-06 17:55:23 UTC
